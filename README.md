@@ -5,7 +5,7 @@
 
 💡 I like to explore new technologies and working on cool stuff.
 
-🧩 In my free time I like playing videogames and listening to music.
+🧩 In my free time I like to play videogames and listen to music.
 
 🌸 I have an insane love for hoodies and the color pink.
 
