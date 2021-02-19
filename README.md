@@ -9,8 +9,6 @@
 
 🌸 I have an insane love for hoodies and the color pink.
 
-🎮 Currently playing *Animal Crossing: New Horizons* and *Immortals Fenyx Rising*.
-
 😄 Pronouns: he/him.
 
 ### 🛠 Tech Stack
