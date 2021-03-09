@@ -9,7 +9,7 @@
 
 🌸 I have an insane love for hoodies and the color pink.
 
-😄 Pronouns: he/him.
+🏳️‍🌈 Pronouns: he/him.
 
 ### 🛠 Tech Stack
 
